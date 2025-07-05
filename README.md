@@ -5,4 +5,4 @@
 </a>
 </p>
 
-circles and squares made up everything
+sendirian
