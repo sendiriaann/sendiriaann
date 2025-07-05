@@ -5,11 +5,4 @@
 </a>
 </p>
 
- 👺we are goblins of the japanese nationality 👺
-
-all you need to know about us:
-- based
-- redpilled
-- certified ∑
-
-thtats it hvae a nice day 👋
+circles and squares made up everything
